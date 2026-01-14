@@ -1,4 +1,4 @@
-# 🌍 GLOBAL MARKET INSIGHTS  
+# 🌍 GLOBAL EQUITY MARKET INSIGHTS  
 ### 📈 A 5-Year Comparative Market Analysis (2020–2024)
 
 ## 📌 Overview
